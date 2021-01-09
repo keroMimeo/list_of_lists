@@ -6,7 +6,7 @@
   - [x] Season 2
   - [ ] Season 3
   - [ ] Season 4
-- [ ] Vikings. 
+- [ ] Vikings 
 - [ ] Handmade's Tail  
 - [ ] Peaky Blinders  
 - [ ] The Americans  
