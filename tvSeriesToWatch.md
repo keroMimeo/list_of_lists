@@ -1,3 +1,32 @@
+## TV series to finish ##
+
+- [ ] Bridgerton
+- [ ] The Crown
+- - [x] Season 1
+- - [x] Season 2
+- - [ ] Season 3
+- - [ ] Season 4
+- [ ] Vikings
+- [ ] Handmade's Tail
+- [ ] Peaky Blinders
+
+- [ ] The Americans
+- [ ] The Office
+Arrested Development
+Orange is the New Black
+Parks and Rec
+Ballers
+Goldbergs
+Alias
+Kung Fu
+
+### Great TV Shows ###
+- [x] Luther   
+- [x] Breaking Bad
+- [x] Orphan Black  
+
+
+
 ## TV Series to Watch ##
 
 - [ ] Bridgerton
