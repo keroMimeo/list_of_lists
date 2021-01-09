@@ -2,10 +2,10 @@
 
 - [ ] Bridgerton
 - [ ] The Crown
-- - [x] Season 1
-- - [x] Season 2
-- - [ ] Season 3
-- - [ ] Season 4
+  - [x] Season 1
+  - [x] Season 2
+  - [ ] Season 3
+  - [ ] Season 4
 - [ ] Vikings
 - [ ] Handmade's Tail
 - [ ] Peaky Blinders
