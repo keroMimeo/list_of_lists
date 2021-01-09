@@ -1,6 +1,6 @@
 TV Series to Watch
 
-[] Bridgerton
+- [ ] Bridgerton
 Oz  
 Ozarks  
 Narcos   
