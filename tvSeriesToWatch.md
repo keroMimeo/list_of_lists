@@ -1,17 +1,15 @@
-TV Series to Watch
+## TV Series to Watch ##
 
 - [ ] Bridgerton
-Oz  
-Ozarks  
-Narcos   
-Wentworth (Netflix)  
-The Wire  
+- [ ] Oz  
+- [ ] Ozarks  
+- [ ] Narcos   
+- [ ] Wentworth (Netflix)  
+- [ ] The Wire  
+- [ ] Fleabag  
+- [ ] Gentlemen Jack  
 
-
-Fleabag  
-Gentlemen Jack  
-
-
+### Someday / Maybe ### 
 Felicity  
 Awkward  
 Black Sails  
