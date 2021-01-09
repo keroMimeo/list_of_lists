@@ -1,7 +1,7 @@
 Movies to watch (for the first time)
 
 ## Upcoming Movie Releases ##
-12 Feb 2021 - French Exit  (Michelle Pfeiffer)
+12 Feb 2021 - French Exit  (Michelle Pfeiffer)   
 2 Apr 2021 - No Time to Die (Bond)  
 15 Apr 2021 - Bios (Tom Hanks creates a robot)    
 11 June 2021 - Ghostbusters: Afterlife   
