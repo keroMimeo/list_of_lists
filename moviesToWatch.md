@@ -16,9 +16,9 @@ TBD - The French Dispatch (Wes Anderson; Bill Murry)
 booksmart  
 white boy rick  
 the to-do list   
-aquaman
-the take ??
-superbad 
+aquaman   
+the take ??  
+superbad   
 12 years a slave  
 daddy's home  
 captain phillips  
