@@ -1,7 +1,7 @@
 Key West Highlights
 
 
-mallory square (must go at once for sunset)  
+mallory square (must go at least once for sunset)  
 ghost tour  
 old town trolley tour  
 little white house  
