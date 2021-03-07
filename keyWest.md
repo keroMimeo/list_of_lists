@@ -1,25 +1,29 @@
-Key West Highlights
+## Key West Highlights
 
 
-mallory square (must go at least once for sunset)  
-ghost tour  
-old town trolley tour  
-little white house  
-southernmost point  
-hemingway's house  
+mallory square (must go at least once for sunset)     
+
+ghost tour  [https://www.trolleytours.com/key-west/ghost-tours]     
+
+old town trolley tour  [https://www.trolleytours.com/key-west/] 
+
+little white house  [https://www.trumanlittlewhitehouse.com/]    
+ 
+hemingway's house  [https://www.hemingwayhome.com/]   
+
+southernmost point 
 
 
+### Food 
+el siboney  [https://www.elsiboneyrestaurant.com/]   
 
-### Food ### 
-el siboney  [https://www.elsiboneyrestaurant.com/].   
+chico's cantina  (stock island)    [https://www.tripadvisor.com/Restaurant_Review-g34345-d492005-Reviews-Chico_s_Cantina-Key_West_Florida_Keys_Florida.html]   
 
-chico's cantina  (stock island)    [https://www.tripadvisor.com/Restaurant_Review-g34345-d492005-Reviews-Chico_s_Cantina-Key_West_Florida_Keys_Florida.html].   
+sandy's cafe (at M&M laundry)     [https://www.sandyscafe.com/]
 
-sandy's cafe (at M&M laundry)     [https://www.sandyscafe.com/].
+blue heaven (amazing breakfast)  [https://blueheavenkw.com/]   
 
-blue heaven (amazing breakfast)  [https://blueheavenkw.com/].   
+hogfish bar and grill (stock island)  [http://www.hogfishbar.com/]   
 
-hogfish bar and grill (stock island)  [http://www.hogfishbar.com/].   
-
-Better than sex desserts [https://www.betterthansexdesserts.com/location/better-than-sex-key-west/].     
+Better than sex desserts [https://www.betterthansexdesserts.com/location/better-than-sex-key-west/]     
 
