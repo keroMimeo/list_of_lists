@@ -13,6 +13,7 @@ hemingway's house  [https://www.hemingwayhome.com/]
 
 southernmost point [https://www.visitflorida.com/en-us/cities/key-west/the-keys-southernmost-point.html]     
 
+<hr />
 
 ### Food 
 el siboney  [https://www.elsiboneyrestaurant.com/]   
@@ -25,15 +26,16 @@ blue heaven (amazing breakfast)  [https://blueheavenkw.com/]
 
 hogfish bar and grill (stock island)  [http://www.hogfishbar.com/]   
 
-Better than sex desserts [https://www.betterthansexdesserts.com/location/better-than-sex-key-west/]     
+better than sex desserts [https://www.betterthansexdesserts.com/location/better-than-sex-key-west/]     
 
+<hr />
 
 ### Activities
 
-Java Cat Eco Tours (snorkel, kayak, sail)   [https://keywestecotours.com/products/java-cat-half-day-eco-tour]      
+java cat eco tours (snorkel, kayak, sail)   [https://keywestecotours.com/products/java-cat-half-day-eco-tour]      
 ...................(private Sunset sail)    [https://keywestecotours.com/products/java-cat-sunset-sail-private-tour]      
                    
-Dolphin Safari  (Capt Gary from Zimbabwe)  [https://safaricharters.com/]     
+dolphin safari  (Capt Gary from Zimbabwe)  [https://safaricharters.com/]     
 
 
 
