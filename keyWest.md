@@ -1,7 +1,7 @@
 ## Key West Highlights
 
 
-mallory square (must go at least once for sunset)     
+mallory square (must go at least once for sunset)  [https://www.mallorysquare.com/]           
 
 ghost tour  [https://www.trolleytours.com/key-west/ghost-tours]     
 
@@ -11,7 +11,7 @@ little white house  [https://www.trumanlittlewhitehouse.com/]
  
 hemingway's house  [https://www.hemingwayhome.com/]   
 
-southernmost point 
+southernmost point [https://www.visitflorida.com/en-us/cities/key-west/the-keys-southernmost-point.html]     
 
 
 ### Food 
