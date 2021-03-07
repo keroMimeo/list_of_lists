@@ -31,7 +31,7 @@ Better than sex desserts [https://www.betterthansexdesserts.com/location/better-
 ### Activities
 
 Java Cat Eco Tours (snorkel, kayak, sail)   [https://keywestecotours.com/products/java-cat-half-day-eco-tour]      
-            (private Sunset sail)    [https://keywestecotours.com/products/java-cat-sunset-sail-private-tour]      
+...................(private Sunset sail)    [https://keywestecotours.com/products/java-cat-sunset-sail-private-tour]      
                    
 Dolphin Safari  (Capt Gary from Zimbabwe)  [https://safaricharters.com/]     
 
