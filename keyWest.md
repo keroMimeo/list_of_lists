@@ -11,9 +11,9 @@ hemingway's house
 
 
 ### Food ### 
-el siboney  [https://www.elsiboneyrestaurant.com/]
-chico's cantina  (stock island)    [https://www.tripadvisor.com/Restaurant_Review-g34345-d492005-Reviews-Chico_s_Cantina-Key_West_Florida_Keys_Florida.html]
-sandy's cafe (at M&M laundry)     [https://www.sandyscafe.com/]
-blue heaven (amazing breakfast)  [https://blueheavenkw.com/]
-hogfish bar and grill (stock island)  [http://www.hogfishbar.com/]
-Better than sex desserts [https://www.betterthansexdesserts.com/location/better-than-sex-key-west/]
+el siboney  [https://www.elsiboneyrestaurant.com/].   
+chico's cantina  (stock island)    [https://www.tripadvisor.com/Restaurant_Review-g34345-d492005-Reviews-Chico_s_Cantina-Key_West_Florida_Keys_Florida.html].   
+sandy's cafe (at M&M laundry)     [https://www.sandyscafe.com/].   
+blue heaven (amazing breakfast)  [https://blueheavenkw.com/].   
+hogfish bar and grill (stock island)  [http://www.hogfishbar.com/].   
+Better than sex desserts [https://www.betterthansexdesserts.com/location/better-than-sex-key-west/].     
