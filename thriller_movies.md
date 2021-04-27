@@ -1,0 +1,29 @@
+## Thrillers
+
+- blue velvet
+- bound (1996)
+- bourne movies
+- casino royale (2006)
+- cape fear (1962, 1991)
+- the vanishing (1988)
+- copycat
+- dead calm (1988)
+- panic room
+- les diaboliques
+- dirty harry
+- dressed to kill
+- enemy of the state
+- falling down
+- fargo
+- fatal attraction
+- get carter (1971)
+- heat
+- history of violence
+- klute
+- the professional (leon, 1994)
+- twin peaks
+- manchurian candidate (1962, 1994)
+- manhunter (hannibal lecktor)
+- marathon man
+- momento
+- misery
