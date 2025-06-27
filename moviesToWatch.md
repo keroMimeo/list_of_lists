@@ -1,4 +1,18 @@
-Movies to watch (for the first time)
+Movies to watch
+
+### From NY Times list of top 100 released in 2000 and after
+
+Superbad  
+Gravity (Sandra Bullock)
+Minority Report (Tom Cruise)
+Michael Clayton (George Clooney.  Lawyer?)
+Gladiator
+
+
+
+
+
+
 
 booksmart  
 white boy rick  
